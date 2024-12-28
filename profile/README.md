@@ -1,7 +1,7 @@
 ### Minecraft 1.21.51 APK Mediafire 2025 Oficial Gratis ultima Version
 Minecraft, el icónico juego sandbox desarrollado por Mojang Studios, ha lanzado recientemente su versión Minecraft 1.21.51 APK Oficial, trayendo consigo emocionantes novedades, mejoras en la jugabilidad y una optimización significativa. En este artículo, exploraremos en detalle qué incluye esta nueva actualización, cómo descargarla de forma segura y las razones por las que no puedes perderte esta versión.
 
-[![des](https://github.com/user-attachments/assets/ef5cb140-81a4-434e-a715-663bd605287a)](https://apktoca.com/minecraft-1-21-51-apk)
+[![des](https://github.com/user-attachments/assets/ef5cb140-81a4-434e-a715-663bd605287a)](https://apktoca.com/minecraft-apk)
 
 ### Novedades de Minecraft 1.21.51
 La versión 1.21.51 se centra en mejorar tanto la experiencia de los jugadores como en introducir contenido completamente nuevo. A continuación, te presentamos las características más destacadas:
